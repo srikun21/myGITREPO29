@@ -1,1 +1,2 @@
-this is my registation page
+this is my registation pagmy 
+my manager work
